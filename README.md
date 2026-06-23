@@ -1,7 +1,5 @@
 ## About JohnnyJoeestar/Me! 
 <!--
-**JohnnyJoeestar/JohnnyJoeestar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 
 Here are some ideas to get you started:
 -  I’m currently working on my new project :)
@@ -18,4 +16,4 @@ Here are some ideas to get you started:
 
 -Fun fact about me : my IQ level is 140-156 by the way!
 
-![Image Alt]()
+![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/Untitled8_20260623202120.png)
