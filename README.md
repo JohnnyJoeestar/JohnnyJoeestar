@@ -1,4 +1,4 @@
-# JohnnyJoestar/Me
+###### 🩵
 𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟
 
 
@@ -8,7 +8,7 @@
 
 ────୨ৎ────
 
-# PONYTOWNPARTYGNG ↓
+# Pony Town Party Gang ↓
 
 ![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/IMG_20260624_001538.jpg)
 ═════════════════════════
