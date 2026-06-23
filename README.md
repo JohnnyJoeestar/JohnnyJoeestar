@@ -10,4 +10,4 @@
 
 I am the one with Rohan pony in this party gang!
 
-![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/Untitled11_20260624010935.png)
+![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/Untitled11_20260624010935.png) Another photo of me ok?
