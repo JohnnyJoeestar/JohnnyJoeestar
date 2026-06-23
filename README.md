@@ -25,3 +25,6 @@ GitHub (main): @Brashie
 
 # PONYTOWNPARTYGNG ↓
 
+![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/IMG_20260624_001538.jpg)
+
+I am the one with Rohan pony in this Gang!
