@@ -6,4 +6,6 @@
 
 ![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/IMG_20260624_001538.jpg)
 
+![Gif Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/539296_593ee.gif)
+
 I am the one with Rohan pony in this Gang!
