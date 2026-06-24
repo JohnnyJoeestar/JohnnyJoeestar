@@ -1,7 +1,5 @@
 ###### 🩵
-𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟
-
-
+𓆝 𓆟 𓆞 𓆝 𓆟𓆝
 ｡𖦹°‧⋆˚࿔![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/Untitled8_20260623202120.png)
 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆟𓆝 𓆟 𓆞࿔  ࿔  ࿔
 ![Gif Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/539296_593ee.gif)
@@ -27,7 +25,4 @@
 ⠀𝑌𝑎𝑎𝑎𝑦 𝑐ℎ𝑒𝑐𝑘 𝑚𝑦 𝑑𝑖𝑠𝑐𝑜𝑟𝑑
  ⠙⢧⡀𝑈𝑠𝑒𝑟: @sweettstbrash         ✧
 ⠀⠀⠀⠙⠶⣄⣀⠴⠋⠀⠀⠀⠀⠀♡
-ˏˋ°•*⁀➷ ![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/Untitled11_20260624010935.png) ၄𝓂ℯ၃!
-
-
-⋆｡𖦹°⭒˚｡⋆⋆｡𖦹°⭒˚｡⋆⋆｡𖦹°⭒˚｡⋆⋆｡𖦹°⭒˚｡
+ˏˋ°•*⁀➷
